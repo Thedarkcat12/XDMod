@@ -1,1 +1,1 @@
-#Dead Terraria Mod
+Dead Terraria Mod
